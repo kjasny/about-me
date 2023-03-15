@@ -1,1 +1,1 @@
-I am amazing!
+I am amazing and pretty!
